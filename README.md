@@ -1,0 +1,1 @@
+These are the presentation materials from my work at the National Biodefense Analysis and Countermeasures Center in Frederick, MD. All of these materials are able to be shared and built with information publicly available.
